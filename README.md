@@ -1,4 +1,4 @@
-### .petr_ivanov
+### - **Discord**: [.petr_ivanov](https://discord.com/users/.petr_ivanov)
 
 <!--
 **petr78516/petr78516** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
